@@ -30,3 +30,8 @@
 Вот и кончилась наша экскурсия, но Калуга космическая на этом не кончается…
 
 [gato](http://geojson.io/#id=gist:YUYulia77/e061663e49bb0240748070489b7ca2c1&map=15/54.5141/36.2440)
+![cielo](https://drive.google.com/drive/u/0/my-drive)
+![cielo](https://drive.google.com/drive/u/0/my-drive)
+
+
+
