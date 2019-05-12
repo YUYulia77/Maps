@@ -31,9 +31,8 @@
 
 [gato](http://geojson.io/#id=gist:YUYulia77/e061663e49bb0240748070489b7ca2c1&map=15/54.5141/36.2440)
 
-![cielo](https://www.fotor.com/share/77409ac8-b6ed-42ea-aa6d-e60acdc9afa0.jpg)
-
-![cielo](https://www.fotor.com/share/77409ac8-b6ed-42ea-aa6d-e60acdc9afa0.jpg)
+[gato](https://www.fotor.com/share/33fcdb9b-2106-4f57-8479-ede460e5bb14)
+[gato](https://www.fotor.com/share/77409ac8-b6ed-42ea-aa6d-e60acdc9afa0)
 
 
 
