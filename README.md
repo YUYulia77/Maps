@@ -29,11 +29,11 @@
 
 Вот и кончилась наша экскурсия, но Калуга космическая на этом не кончается…
 
-[gato](http://geojson.io/#id=gist:YUYulia77/e061663e49bb0240748070489b7ca2c1&map=15/54.5141/36.2440)
+Карта [gato](http://geojson.io/#id=gist:YUYulia77/e061663e49bb0240748070489b7ca2c1&map=15/54.5141/36.2440)
 
-[gato](https://www.fotor.com/share/33fcdb9b-2106-4f57-8479-ede460e5bb14)
+Фото 1 [gato](https://www.fotor.com/share/33fcdb9b-2106-4f57-8479-ede460e5bb14)
 
-[gato](https://www.fotor.com/share/77409ac8-b6ed-42ea-aa6d-e60acdc9afa0)
+Фото 2 [gato](https://www.fotor.com/share/77409ac8-b6ed-42ea-aa6d-e60acdc9afa0)
 
 
 
